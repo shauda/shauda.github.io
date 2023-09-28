@@ -2,6 +2,26 @@
 
 #### This repo is a clone of https://github.com/varadbhogayata/varadbhogayata.github.io
 
+## Activity 1
+![image](https://github.com/shauda/shauda.github.io/assets/66545123/1b64a737-f9b7-4e35-b0b9-42c457ccf16b)
+
+## Activity 2
+![image](https://github.com/shauda/shauda.github.io/assets/66545123/23fce37f-9a46-4ead-b9f6-34e5bc92721e)
+
+![image](https://github.com/shauda/shauda.github.io/assets/66545123/0531c915-12c2-4e6b-abb6-d0bc697b6e4e)
+
+![image](https://github.com/shauda/shauda.github.io/assets/66545123/fe7a39ba-646c-4161-8bd2-fc650f75811e)
+
+## Activity 3
+![image](https://github.com/shauda/shauda.github.io/assets/66545123/b5cc8bef-3263-4c72-8590-5513dbabb066)
+
+![image](https://github.com/shauda/shauda.github.io/assets/66545123/54ffbef1-c104-4c9f-bfa3-3b0726b08a95)
+
+## Activity 4
+![image](https://github.com/shauda/shauda.github.io/assets/66545123/805b4b00-561d-4900-9367-cc2e09cf2756)
+
+![image](https://github.com/shauda/shauda.github.io/assets/66545123/1e8f39f2-bf9e-424c-b88e-5bdb0d6a9491)
+
 #
 
 # Personal Portfolio ⚡️ 
